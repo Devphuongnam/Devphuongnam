@@ -4,8 +4,4 @@
 ## <img src="https://raw.githubusercontent.com/nixin72/nixin72/master/wave.gif" width="50px"></img> About Me
 
 - ![image](https://github.com/Devphuongnam/Devphuongnam/assets/93307947/ed3d857b-bf39-4708-95ac-afe8ca422bac)
-: **Winter**
-- :relieved: ***"It's never too late - never too late to start over, never too late to be happy"***
-
----
-[![](https://visitcount.itsvg.in/api?id=hieumilo2k&icon=6&color=3&pretty=false)](https://visitcount.itsvg.in)
+:  SUMMER 
